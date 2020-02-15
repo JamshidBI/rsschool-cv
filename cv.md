@@ -1,0 +1,2 @@
+# Jamshid Bozorov's CV
+
